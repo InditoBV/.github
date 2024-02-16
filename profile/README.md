@@ -11,3 +11,13 @@ Wij geloven in de kracht van een goede samenwerking, het vieren van de successen
 Onze aanpak is direct en zelfverzekerd, maar altijd met een glimlach. Bij INDITO draait alles om onze partners, wij gaan verder dan alleen zaken doen. Het gaat om groei, resultaat en een gedeelde visie. Samen zetten we de stap naar morgen.
 
 Let’s shape the future!
+
+In contact komen met ons? Je vindt ons in Deventer!
+
+**Zweedsestraat 8 A1**
+
+**7418 BG Deventer**
+
+**[+31 570 79 61 00](tel:+31570796100)**
+
+**[indito.nl](https://indito.nl)**
